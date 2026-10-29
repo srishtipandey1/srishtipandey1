@@ -6,5 +6,3 @@ Just an 19-year-old building things because… well, someone’s gotta. I like m
 - Low-key confused, high-key curious
 - Personal projects I’m too stubborn to finish
 
-# Hit Me Up
-📧 Email: pandey.srishti1203@gmail.com 
